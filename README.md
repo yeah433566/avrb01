@@ -26,5 +26,5 @@
 结语  
 选择可靠、安全的在线视频平台，可以确保观众享受到高清、流畅的播放体验，保护个人隐私。  
  
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah433566/avrb01 )</span>
 
